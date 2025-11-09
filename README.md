@@ -1,1 +1,1 @@
-# amcp-cv
+https://weoqwee.github.io/amcp-cv/cv
